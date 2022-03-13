@@ -1,0 +1,4 @@
+- 👋 Salut, je suis @Thenaelpvp j'ai commencé a dev il y a 1 mois.
+- 👀 Je suis intéressé par le skript Minecraft.
+- 🌱 J'apprends actuellement le html/css.
+- 📫 Vous pouvez me joindre avec mon Discord The_nael_pvp#5987.
